@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @someonewhoknowsme
+- 👋 Hi, I’m Wendy
 - 👀 I’m interested in doing a manga.
 - 🌱 I’m currently learning fremch.
 - 💞️ I’m looking to collaborate on ...
